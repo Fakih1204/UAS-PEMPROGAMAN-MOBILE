@@ -24,3 +24,8 @@ UI/UX
 
 
 ![image](https://github.com/user-attachments/assets/e0c521ec-fe60-4c23-b73f-db0cf051a8e6
+
+
+
+https://github.com/user-attachments/assets/31c06907-cde1-4ea9-a71d-dcec8264ae63
+
